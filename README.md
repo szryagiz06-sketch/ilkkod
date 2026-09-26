@@ -1,1 +1,1 @@
-Merhaba ben yağız yönetim bilişim sistemleri öğrencisiyim # ilkkod
+yağız sezer 030425030 ödevim # ilkkod
